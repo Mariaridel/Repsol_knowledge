@@ -31,14 +31,3 @@ descarbonizacion hasta llegar a ser una compañia cero emisiones netas en 2050.
 Con esta actualizacion estrategica, Repsol espera presentar al mercado argumentos de inversion solidos y convincentes que demuestren que los ambiciosos objetivos de transicion energetica son sostenibles y rentables.
 Repsol publica el mismo dia que el presente informe de
 gestion el nuevo PE24-27, disponible en www.repsol.com.
-
-
-
-¿Cuales seran las principales lineas estrategicas de los negocios?	En cliente, ser un lider multi-energetico; en industrial, maximizar la rentabilidad mejorando la competitividad; en GBC, el desarrollo organico de la cartera de proyectos y en su optimizacion; en E&P actualizacion y mejora de la cartera de proyectos
-¿Cuando se anuncio el objetivo de ser una compañia cero emisiones netas en 2050?	En diciembre de 2019
-¿Cual ha sido la caja adicional generada durante los tres primeros años del PE21-25?	Se ha generado una caja adicional de cerca de 11.000 millones de euros
-¿Cual es la politica de retribucion de los accionistas?	el nuevo modelo retributivo se centrara en proporcionar estabilidad y previsibilidad al dividendo, estableciendo una salida fija de caja por dividendos de 1.100-1.200 millones de euros. El dividendo para el año 2024 se incrementa un +30%, alcanzando los 0,9€/accion, y se asegura para los años siguientes un minimo de crecimiento del dividendo del +3%. Este
-dividendo sera complementado, hasta llegar a un 25-35% del total del flujo de caja de las operaciones del Grupo mediante la recompra y retirada de acciones en circulacion.
-¿Que deuda tiene Repsol  a fecha 31 de diciembre de 2023?	2096 millones de euros
-¿Que informacion incluye la actualizacion estrategica para el periodo 2024-2027 (PE24-27)?	Esta actualizacion se basa en como Repsol va a afrontar la transicion energetica siguiendo la hoja de ruta de la descarbonizacion en los proximos años pero partiendo de una posicion de fortaleza financiera y habiendo avanzado operativamente durante estos tres años.
-
